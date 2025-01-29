@@ -6,7 +6,7 @@
 - 😄 Pronouns: very handsome smart not black person
 - ⚡ Fun fact: Im actually not a rasist, Im racist
 - 😎 Another fun fact: Я русский
-- 🧠 Another another fun fact: I dont know what anime my avatar is from
+- 🧠 Another another fun fact: I dont know what anime my pfp is from
 
 <!---
 masterofrasism/masterofrasism is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
